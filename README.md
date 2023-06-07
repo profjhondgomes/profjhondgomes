@@ -1,3 +1,2 @@
-- 👋 Olá, sou Jhonatan Dias Gomes
-- 👀 Professor e estudante
-pode me encontrar nas redes sociais @JhonDGomeS
+- 👋 Olá, sou Jhonatan Dias Gomes - Professor e estudante
+- 👀Estou nas redes sociais @JhonDGomeS
